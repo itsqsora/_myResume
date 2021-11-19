@@ -1,5 +1,5 @@
 # :boy: Profile 
-## Hello there people
+## Hello there, people.
 I'm Soranan Rungtanee. I love to make a fancy and beautiful stuff and I also like to animate things back to live!
 
 🌐**Location:** Trang, Thailand. [GMT+7] <br>
