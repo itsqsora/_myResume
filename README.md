@@ -6,7 +6,7 @@ I'm Soranan Rungtanee. I love to make a fancy and beautiful stuff and I also lik
 📫**E-mail:** itsqsora@gmail.com
 
 **Browse the links below :point_down:
-- [Resume for Casa Del Vino est. 1956](https://github.com/itsqsora/_myResume/blob/main/Resume%20For%20Casa%20Del%20Vino%20est.1956)
+-✨ [Resume for Casa Del Vino est. 1956](https://github.com/itsqsora/_myResume/blob/main/Resume%20For%20Casa%20Del%20Vino%20est.1956)
 - [Personal Website](https://soranan.netlify.app/)
 - [GitHub Profile](https://github.com/itsqsora)
 - [Twitter](https://twitter.com/itsqsora)
